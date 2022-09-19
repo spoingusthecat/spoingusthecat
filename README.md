@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @spoingusthecat
-- 👀 I’m interested in r/UIUC, r/MEOW_IRL, and 
+- 👀 I’m interested in r/UIUC, r/MEOW_IRL, and r/bingus
 - 🌱 I’m currently learning about web development!
 - 💞️ I’m looking to collaborate on some cool web development
 - 📫 How to reach me: i have a reddit account and an email that you can message!
